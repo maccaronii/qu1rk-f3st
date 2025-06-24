@@ -10,5 +10,4 @@
 
 ˏˋ°•*⁀➷ ˏ ˗ˏˋ꒰ 🍒 ꒱ 
 
-![](https://komarev.com/ghpvc/?bleplings&color=yellowgreen)
-
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
