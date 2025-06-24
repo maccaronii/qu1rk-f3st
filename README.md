@@ -2,7 +2,8 @@
 
 ᑯⱺ𐓣𝗍 ᑲ𝖾 ᥣ𝗂𝗄𝖾 𝗍ɦ𝖾 ɦα𝗍𝖾𝗋𝗌 α𐓣ᑯ 𝗌𝗂𝗀𐓣 ᑲᥣ𝖾ρ'𝗌 𝗌𝗍𝗋αωρα𝗀𝖾... ρ𝗋𝖾𝗍𝗍𝗒 ρᥣ𝖾α𝗌𝖾 (´;︵;`)
 
-![d38a04cca07e3dae73eb8df1c3648c88](https://github.com/user-attachments/assets/cc63f815-d4e0-4a3b-9d2a-0f404e0b9bd6)
+![7a4feba4748100a90b638fa0fb2ddb80](https://github.com/user-attachments/assets/9d4cc163-8a94-47a6-9968-9957576a7e74)
+
 
 ｌｉｆｅ　ｌａｕｇｈ　ｌｏｖｅ　ａｌｗａｙｓ，　ｍｙ　ｃｈｉｌｄｒｅｎ
 
@@ -14,6 +15,5 @@
 
 this is still a wip... unfortunately!!!
 
-![bg,f8f8f8-flat,750x,075,f-pad,750x1000,f8f8f8](https://github.com/user-attachments/assets/73577d9c-38a2-4762-823d-dcf4f77f8126)
 
 
