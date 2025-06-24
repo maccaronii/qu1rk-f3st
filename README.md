@@ -11,6 +11,6 @@
 
 ˏˋ°•*⁀➷ ˏ ˗ˏˋ꒰ 🍒 ꒱ 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=D2042D)
+![](https://komarev.com/ghpvc/?bleplings=D2042D)
 
 ![Screenshot 2025-06-23 9 39 59 PM](https://github.com/user-attachments/assets/404e60c1-21bf-4133-96ac-1566a4c3d369)   
