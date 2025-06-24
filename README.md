@@ -10,5 +10,5 @@
 
 ˏˋ°•*⁀➷ ˏ ˗ˏˋ꒰ 🍒 ꒱ 
 
-
+![](https://komarev.com/ghpvc/?bleplings&color=yellowgreen)
 
