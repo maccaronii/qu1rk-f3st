@@ -13,4 +13,4 @@
 
  ![](https://komarev.com/ghpvc/?username=your-github-username&label=bleplings)
 
-![Screenshot 2025-06-23 9 39 59 PM](https://github.com/user-attachments/assets/404e60c1-21bf-4133-96ac-1566a4c3d369)   
+![beee](https://github.com/user-attachments/assets/e986e22b-78bf-4a04-88ff-d90b8d412b4a)
