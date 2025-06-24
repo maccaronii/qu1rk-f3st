@@ -10,4 +10,4 @@
 
 ˏˋ°•*⁀➷ ˏ ˗ˏˋ꒰ 🍒 ꒱ 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
+![](https://komarev.com/ghpvc/?qu1rk-f3st&color=yellowgreen)
