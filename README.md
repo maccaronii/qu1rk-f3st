@@ -16,7 +16,5 @@
 
  ![](https://komarev.com/ghpvc/?username=your-github-username&label=bleplings)
 
-![pol](https://github.com/user-attachments/assets/fdfb13aa-92ac-4de1-badc-d4aa5a15f811)
 
-![vis-std-icons-image1-removebg-preview](https://github.com/user-attachments/assets/860bd6e9-f307-4ea2-8fea-cc4f10336224)
 𝘥𝘰𝘯'𝘵 𝘧𝘰𝘳𝘬 𝘵𝘩𝘪𝘴 𝘳𝘦𝘱𝘰𝘴𝘪𝘵𝘰𝘳𝘺.. 𝘮𝘶𝘤𝘩 𝘢𝘱𝘱𝘳𝘦𝘤𝘪𝘢𝘵𝘦𝘥, 𝘵𝘩𝘢𝘯𝘬𝘴!!
