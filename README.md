@@ -1,8 +1,7 @@
 𝚑𝚎𝚢 𝚝𝚑𝚎𝚛𝚎
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=novatorem&show_offline=false&background_color=8f7070&interchange=false&bar_color=e9c8c8&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=eae6e6&interchange=false&bar_color=c7d1dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ₙᵢ𝓬ₑ ₜₒ ₘₑₑₜ ᵧₒᵤ ᵳᵣᵢₑₙ𝓭, ₜₕₐₙₖₛ ᵳₒᵣ ₛₜₒₚₚᵢₙ ♭ᵧ ₍ ,,^ᵤ^ ,, ₎
 
