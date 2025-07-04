@@ -1,4 +1,5 @@
-𝚑𝚎𝚢 𝚝𝚑𝚎𝚛𝚎
+𝚑𝚎𝚢 𝚝𝚑𝚎𝚛𝚎        ![3dgifmaker82369](https://github.com/user-attachments/assets/6604eec2-b3aa-4518-a8e9-63223712f78c)
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=eae6e6&interchange=false&bar_color=c7d1dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
