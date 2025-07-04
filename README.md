@@ -1,6 +1,6 @@
 𝚑𝚎𝚢 𝚝𝚑𝚎𝚛𝚎 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=eae6e6&interchange=false&bar_color=c7d1dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) ![3dgifmaker82369](https://github.com/user-attachments/assets/8cb94210-cba2-455e-b31d-b2d676cb1c83)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=eae6e6&interchange=false&bar_color=c7d1dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) (https://github.com/user-attachments/assets/8cb94210-cba2-455e-b31d-b2d676cb1c83)
 ![ay](https://github.com/user-attachments/assets/d05d0567-f98a-4018-ac02-93d998acfd96)
 
 
