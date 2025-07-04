@@ -1,6 +1,5 @@
 𝚑𝚎𝚢 𝚝𝚑𝚎𝚛𝚎
 
-![chiikawa](https://github.com/user-attachments/assets/2d529056-71c3-4340-9d45-b910ecd2c9f8)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=novatorem&show_offline=false&background_color=8f7070&interchange=false&bar_color=e9c8c8&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
