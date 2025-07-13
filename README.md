@@ -6,7 +6,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31newi2imqx6oawnonuoik5iytmi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=eae6e6&interchange=false&bar_color=c7d1dc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
 
-ₙᵢ𝓬ₑ ₜₒ ₘₑₑₜ ᵧₒᵤ ᵳᵣᵢₑₙ𝓭, ₜₕₐₙₖₛ ᵳₒᵣ ₛₜₒₚₚᵢₙ ♭ᵧ ₍ ,,^ᵤ^ ,, ₎
+ₙᵢ𝓬ₑ ₜₒ ₘₑₑₜ ᵧₒᵤ ᵳᵣᵢₑₙ𝓭, ₜₕₐₙₖₛ ᵳₒᵣ ₛₜₒₚₚᵢₙ ♭ᵧ !!
 
 ˚ ༘♡ ⋆｡˚ ❀ 
 
